@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @ciaralawson
 - 👀 I’m interested in building customer success and consulting teams and optimizing operations
 - 🌱 I’m currently learning how to be a parent 😂 
-- 💞️ I’m looking to collaborate on strategies 
-- 📫 How to reach me: 
+- 💞️ I’m looking to collaborate on strategies to transform customer ecperience teams!
+- 📫 How to reach me: ciaraschenk@gmail.com
 - 😄 Pronouns: she/her 🙋‍♀️
 - ⚡ Fun fact: I've been to 50+ countries 🌎🛩️ and I'm a dual US 🇺🇸 / 🇮🇪 Irish Citizen
 
